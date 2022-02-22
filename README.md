@@ -44,5 +44,4 @@ Una vez termines el curso podrás seguir con los mejores cursos de análisis de 
 
 Complementa este curso con el resto del itinerario específico que tienes disponible en la web de [Frogames](https://frogames.es/rutas-de-aprendizaje)
 
-222eee
 
